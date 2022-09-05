@@ -8,3 +8,5 @@ Noveic du meme
 HUST WER DAS MEME IST SIEHT MAN JA
 ![l](https://user-images.githubusercontent.com/111784551/188499775-db165f36-4297-4712-ab2a-f8a7b77072b3.png)
 0815 OBFUSCATOR naja für dein brain hats wohl nicht gereicht 
+![kk](https://user-images.githubusercontent.com/111784551/188499860-a272c3cc-d170-4d82-a8c2-fc1271a09046.png)
+Keine Hobbys aber musst so tun als hättest du irgendwas gemacht außer gedownloaded
