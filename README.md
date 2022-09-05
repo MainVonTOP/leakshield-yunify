@@ -6,3 +6,5 @@ Noveic du skid halt deine fresse
 Noveic du meme 
 ![rd](https://user-images.githubusercontent.com/111784551/188499465-dd0e104d-e34f-4012-bcd4-c36b77387c5d.png)
 HUST WER DAS MEME IST SIEHT MAN JA
+![l](https://user-images.githubusercontent.com/111784551/188499775-db165f36-4297-4712-ab2a-f8a7b77072b3.png)
+0815 OBFUSCATOR naja für dein brain hats wohl nicht gereicht 
